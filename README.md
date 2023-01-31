@@ -1,2 +1,1 @@
-# Reydecopas
-Bocacampeon
+el que nunca descendio
